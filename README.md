@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @newrison
+- 👀 I’m interested in personal AI
